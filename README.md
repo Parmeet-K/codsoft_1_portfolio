@@ -1,3 +1,5 @@
-HI EVERYONE
-THIS IS MY PORTFOLIO WHERE YOU GET TO KNOW ABOUT MY SKILL AND PROJECT 
-YOU CAN ALSO REACH ME THROUGH THIS 
+Hi Everyone
+
+This is my portfolio where you get to know about my skills and projects
+
+You can also reach me through this.
